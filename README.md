@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on computer programming 
 - 📫 How to reach me 0768580113
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: just a boy .belives in hardwork loves playing football extrovert
 
 <!---
 nicholas-mwania/nicholas-mwania is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
